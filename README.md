@@ -1,2 +1,4 @@
 # AIYangYu
-！[C([UQU@@DI_9)C{KJWBJVCO.jpg]
+你说的对但是
+![1111.jpg](https://raw.githubusercontent.com/stmtc233/AIYangYu/main/1111.jpg)
+
